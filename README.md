@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, AI development, Game development
 - 🌱 I’m currently learning Nothing (Just a teen)
 - 💞️ I’m looking to collaborate on ...IDK
-- 📫 How to reach me ...IDK
+- 📫 How to reach me ...Message?
 - 😄 Pronouns: ...IDK
 - ⚡ Fun fact: ...IDK
 
